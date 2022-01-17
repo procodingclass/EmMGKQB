@@ -1,1 +1,1 @@
-# EmMGKQB
+# Tablet-SPCK-PRO-C34-Student-Activity-Reference
